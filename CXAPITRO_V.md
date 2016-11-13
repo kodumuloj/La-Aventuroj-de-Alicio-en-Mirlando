@@ -1,4 +1,3 @@
-# CXAPITRO V
 # ALICIO RICEVAS ADMONON DE LA RAUXPO
 
 Tre longan tempon Alicio kaj la Rauxpo silente rigardis unu la alian;

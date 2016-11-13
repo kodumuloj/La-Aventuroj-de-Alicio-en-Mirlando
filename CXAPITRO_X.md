@@ -1,4 +1,3 @@
-# CXAPITRO X
 # LA OMARA KVADRILO
 
 La Falsa Kelonio profunde ekgxemis, kaj tiris la postan flankon de unu

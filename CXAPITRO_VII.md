@@ -1,4 +1,3 @@
-# CXAPITRO VII
 # TETRINKADO CXE FRENEZULOJ
 
 Jen sub arbo antaux la domo sxi vidis tablon; cxe la tablo sidis,

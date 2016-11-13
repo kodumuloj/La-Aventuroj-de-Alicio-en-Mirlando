@@ -1,4 +1,3 @@
-# CXAPITRO IX
 # LA VIV-HISTORIO DE LA FALSA KELONIO
 
 "Vi ne povas imagi," diris la Dukino, "kiel gxojige estas por mi

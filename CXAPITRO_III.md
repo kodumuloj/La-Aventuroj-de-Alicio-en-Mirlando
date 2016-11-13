@@ -1,4 +1,3 @@
-# CXAPITRO III
 # POST STRANGA VETKURO SEKVAS STRANGA MUS-TEJLO
 
 La kunvenintoj sur la bordo prezentis tre strangan aspekton. Jen

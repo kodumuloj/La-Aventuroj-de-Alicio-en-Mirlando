@@ -1,4 +1,3 @@
-# CXAPITRO XII
 # ALICIO ATESTANTO
 
 "Jen mi" ekkriis Alicio. Pro la eksciteco sin trovi alvokata, sxi

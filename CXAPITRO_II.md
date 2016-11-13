@@ -1,4 +1,3 @@
-# CXAPITRO II
 # LA LAGETO FARITA EL LARMOJ
 
 "Neniam mi spertis tiajxo," ekkriis Alicio, (pro eksciteco sxi ecx

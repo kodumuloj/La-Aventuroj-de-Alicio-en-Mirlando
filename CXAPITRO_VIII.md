@@ -1,4 +1,3 @@
-# CXAPITRO VIII
 # KROKETLUDO CXE LA KERA DAMO
 
 Ne malproksime de l' enirejo staris granda rozarbo; kreskis sur gxi

@@ -1,4 +1,3 @@
-# CXAPITRO IV
 # CXEFE PRI UNU LACERTO NOMATA BIL
 
 Alvenis ne la Muso, sed la Blanka Kuniklo, Gxi trotis malrapide,

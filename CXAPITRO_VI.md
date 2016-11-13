@@ -1,4 +1,3 @@
-# CXAPITRO VI
 # PRI LA PORKINFANO
 
 Kelkan tempon sxi staris senmove, fikse rigardante la dometon kaj

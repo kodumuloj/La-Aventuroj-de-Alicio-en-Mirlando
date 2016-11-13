@@ -1,4 +1,3 @@
-# CXAPITRO IX
 # KIU FORSXTELIS LA TORTOJN?
 
 Kiam ili alvenis, la Keraj Geregxoj jam sidis sur sia trono,

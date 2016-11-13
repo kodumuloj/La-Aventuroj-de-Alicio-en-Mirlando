@@ -1,4 +1,3 @@
-# CXAPITRO I
 # MIRINDA FALEGO
 
 Alicio, jam longan tempon sidinte apud sia fratino sur la deklivo,
